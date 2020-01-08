@@ -1,4 +1,0 @@
-mnashufjah
-dahoi
-fkdl
-an
